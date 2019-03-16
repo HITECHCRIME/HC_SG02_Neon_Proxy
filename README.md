@@ -23,6 +23,12 @@ zamknij w końcu gardziel, zedrzyj płaty prawdy, gardę skrusz
 cyngiel rwij - w stronę suki - psychotycznych zórz 
 spłacam dług agresji - nie poddam się presji uh
 
+gdziekolwiek nie spojrzę cała ulica neonów 
+powiedz mi co myśleć martwy pośród twoich nowych bogów
+powiedz mi co myśleć martwy wśród twoich powiek rozwartych
+wrzask demonów pośród blasku to kompletny null dla prawdy
+(DEMONIC SCREAM)
+
 [VERSE1]
 proxy byłaś jesteś i bedzięsz
 nosnik danych szybko zejdzie
