@@ -7,6 +7,8 @@ https://www.youtube.com/watch?v=jD_W401W3M4 (Vendetta Beats)
 https://www.youtube.com/watch?v=Pgpb6VnTM_4
 https://www.youtube.com/watch?v=fjBpHxjzPY0 ONYX
 
+https://www.youtube.com/watch?v=BM-QlxodDTI
+
 (neon buzz sounds, turning on)
 vicious laugh
 
