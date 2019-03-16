@@ -8,11 +8,15 @@ https://www.youtube.com/watch?v=Pgpb6VnTM_4
 https://www.youtube.com/watch?v=fjBpHxjzPY0 ONYX
 
 https://www.youtube.com/watch?v=BM-QlxodDTI
+https://www.youtube.com/watch?v=0EK4w4yc4aA
+https://www.youtube.com/watch?v=LNyTVspbpfI
+https://www.youtube.com/watch?v=qngb_DCKrKc
+https://www.youtube.com/watch?v=gH1DPq5JebY
 
 (neon buzz sounds, turning on)
 vicious laugh
 
-[HOOK
+[HOOK]
 wersem przez twój piękny sen źrenic pogardzonych rój
 zamknij w końcu gardziel, zedrzyj płaty prawdy, gardę skrusz 
 cyngiel rwij - w stronę suki - psychotycznych zórz 
