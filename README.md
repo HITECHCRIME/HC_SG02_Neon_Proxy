@@ -57,15 +57,15 @@ Duch w maszynie, zimny duuuch -
 
 czy maszyna w duchu twoich uczuć
 zrobi chłód zrobi chłód
-
+(sieci rhyme)
 światła wyłączone, zróbmy ruch
 w twojej duszy brak ci karmy 
 kryształ, nie pomoże, nawet neonowy buch
+Jedyne co tutaj widzę w tej sieci to null dla prawdy
+(suko)
 
 Gdziekolwiek nie spojrzę tam ta szara ulica 13
 Powiedz mi co myśleć martwy - wśród powiek otwartych 
-Jedyne co tutaj widzę w tej sieci to null dla prawdy
-(suko)
 
 ład Zniszczona dusza
 
