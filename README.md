@@ -35,7 +35,7 @@ nosnik danych szybko zejdzie
 czuje twój wzrok, czuje twój mrok, 
 znowu masz pretensje --
 to co tu robimy to egzorcyzm ducha
-sluchaj zmory twego złego snu sie juz tu nie wybudzą
+sluchaj zmory twego złego snu sie juz tu nie wybudzą 
 
 [CHORUS]
 gdziekolwiek nie spojrzę cała ulica neonów 
