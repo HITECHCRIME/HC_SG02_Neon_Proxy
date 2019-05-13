@@ -13,6 +13,9 @@ https://www.youtube.com/watch?v=LNyTVspbpfI
 https://www.youtube.com/watch?v=qngb_DCKrKc
 https://www.youtube.com/watch?v=gH1DPq5JebY
 https://www.youtube.com/watch?v=oiMVXeaZIds
+https://www.youtube.com/watch?v=SBCoGwY3h18
+
+THISONE: https://www.youtube.com/watch?v=7cFjfN8ccq0
 
 (neon buzz sounds, turning on)
 vicious laugh
