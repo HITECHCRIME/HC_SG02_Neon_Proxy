@@ -17,6 +17,19 @@ https://www.youtube.com/watch?v=SBCoGwY3h18
 
 THISONE: https://www.youtube.com/watch?v=7cFjfN8ccq0
 
+NEW
+
+---
+drill
+https://www.youtube.com/watch?v=lsY4cwsF4Sg
+https://www.youtube.com/watch?v=4lQmcpwvKME
+https://www.youtube.com/watch?v=_gbc4cC-Ae0
+https://www.youtube.com/watch?v=uAW0igbxIr4
+https://www.youtube.com/watch?v=yRWrDwDQC4A
+
+https://www.youtube.com/watch?v=vhzriIETS20
+https://www.youtube.com/watch?v=Xu6FmmoGVhk
+
 (neon buzz sounds, turning on)
 vicious laugh
 
@@ -24,7 +37,7 @@ vicious laugh
 wersem przez twój piękny sen źrenic pogardzonych rój
 zamknij w końcu gardziel, zedrzyj płaty prawdy, gardę skrusz 
 cyngiel rwij - w stronę suki - psychotycznych zórz 
-spłacam dług agresji - nie poddam się presji uh
+spłacam dług agresji - nie poddam się presji uh, won mi stąd no już
 
 gdziekolwiek nie spojrzę cała ulica neonów 
 powiedz mi co myśleć martwy pośród twoich nowych bogów
